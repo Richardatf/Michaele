@@ -16,7 +16,7 @@ https://hlxlabs.shop/?ref=Mlee
 Personal referral link:  
 https://glowlabprotocols.com/?ref=MICHAELELEE
 
-**Current code: THANKYOU30**
+**Current code: glowmichaele10**
 
 ## Follow My Journey
 
